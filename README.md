@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @tareq-mahmood-1-sazim
+- 👋 Hi, I’m @tareq-mahmood-sazim
 - 👀 I’m interested in gardening
 - 🌱 I’m currently learning how to grow potato
 - 💞️ I’m looking to collaborate on potato farm
 - 📫 How to reach me, well, at the farm?
-- 😄 Pronouns: wee/woo
+- 😄 Pronouns: wee/woo (I identify myself as an ambulance)
 - ⚡ Fun fact: I am an introvert, if you see me talking, expect a fire around somewhere
 
 <!---
